@@ -1,3 +1,3 @@
+
 # Praktyki
-yee
-kappa
+ee kappa kappa
