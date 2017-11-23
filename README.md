@@ -1,1 +1,3 @@
 # Praktyki
+yee
+kappa
